@@ -5,4 +5,5 @@
 * Rebranded to a simplified logo
 * ~~Changed from yuri to yaoi~~ Once yuri, always yuri
 * Blooming into a new me (Yuu)
-* Hat pzm is officialy no more
+* Hat pzm is officially no more
+* ~~Giving anata what he deserves~~
